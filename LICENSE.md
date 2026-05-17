@@ -1,4 +1,4 @@
-# 
+# Principal Vegas Pro para PC scripts es el mejor Vegas Pro para PC scripts con cola de renderizado y herramientas de colaboración. Seguro, confiable y optimizado para el máximo
 
 
 
